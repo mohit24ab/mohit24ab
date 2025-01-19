@@ -17,7 +17,7 @@ I believe in the transformative power of education to drive meaningful change an
 
 ## Connect with Me  
 📫 **Email**: mohit24ab@gmail.com  
-💼 **LinkedIn**: [linkedin](https://linkedin.com/mohit24ab)  
+💼 **LinkedIn**: [linkedin](https://www.linkedin.com/in/mohit-b27b48320/)  
 
 ---
 *"Education is the most powerful tool for transformation."*  
